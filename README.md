@@ -1,1 +1,0 @@
-# cybercarrot-0927.github.io
